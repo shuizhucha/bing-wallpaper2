@@ -1,5 +1,7 @@
 ## Bing Wallpaper
 
+2026-09-24 | [Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienWeek_EN-US7313336185_UHD.jpg)
+
 2026-09-23 | [Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.FallAspens_EN-US7211031109_UHD.jpg)
 
 2026-09-23 | [Fall aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)](https://cn.bing.com/th?id=OHR.FallAspens_EN-CA6568286298_UHD.jpg)
